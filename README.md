@@ -1,3 +1,3 @@
-### Welcome to land of Ruchika Lakhina
+### Hi!! This is Ruchika Lakhina
 
 
